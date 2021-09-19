@@ -32,7 +32,7 @@
 
 ### 最终录取学校：
 
-University of Copenhagen, MSc Programme in Mathematics（综合地理位置、学术水平和学费决定）
+University of Copenhagen, MSc Programme in Mathematics（综合地理位置、学术水平和学费决定）。
 
 ### 其他录取结果：（按时间顺序）
 
